@@ -52,33 +52,32 @@ That is our core social belief - in the dialectic, in the power of dialogue and 
 
 The world is unfortunately not a utopia and humans still wage war on one another.
 
-In order to insure the safety and well-being of our citizens, it is unfortunately necessary to have a strong a technologically advanced defense military system.
+In order to insure the safety and well-being of our citizens, it is regrettably necessary to have a strong and technologically advanced defense military system.
 
-To be clear, our party does not support foreign aggressions on other countries, realizing that the context does matter and debate is to be had on an issue by issue basis, we in general reject the notion that our country should have any military involvement in world affairs other than for defense purposes.
+To be clear, our party does not support foreign aggressions on other countries, realizing that the context does matter and debate is to be had on an issue by issue basis, we in general reject the notion that our country should have any military involvement in world affairs other than for national defense purposes.
 
-Still, to maintain the safety of our citizens, humanity at large, and to ensure human flourishing into the future a military should be maintained and it should be swift, efficient, and highly technologically advanced.  
+Still, to maintain the safety of our citizens, humanity at large, and to ensure human flourishing into the future a military should be maintained and it should be swift, efficient, and technologically advanced.  
 
 #### The Process
 
 All of our party's main pillars, quell in comparison to our guiding process.
 
-Its this process that can give us the guarantee's about the future we want to have, because we know that if we do make a mistake as a society, either morally, politically, or economically, it will be corrected - so long as our laws, regulations and party goals are themselves subject to the time tested scientific method of inquiry.
+Its this process that can give us the guarantees about the future we want to have, because we know that if we do make a mistake as a society, either morally, politically, or economically, it will be corrected - so long as our laws, regulations and party goals are themselves subject to the time tested scientific method of inquiry.
 
 For instance, every policy we choose to implement should be tested on a regular basis to determine whether or not its achieving the specific goals of the policy (themselves always deriving from our overarching aims of maximizing human flourishing and minimizing human suffering).
 
 It is this process, which will allow us to make hypotheses about social welfare systems, test them, and iteratively arrive at systems that improve over the course of time.
 
-The general form of the process is as follows. We have a goal we want to achieve in our society, for instance, making quality health care available for everyone in our society, we then make hypotheses about the best ways to achieve this goal, in terms of affordability, self-sustainability, etc. We take these various hypotheses and tests them, either in trials or in simulations, we analyze them and select the best systems, and finally we apply them in our policies. But it doesn't end there, now we begin evaluating those very policies and systems over time, measuring their effectiveness and ability to achieve the aims for which they have been designed, making iterative adjustments or total rehauls depending on the data analyses.
+The general form of the process is as follows. We have a goal we want to achieve in our society, for instance, making quality health care available for everyone in our society, we then make hypotheses about the best ways to achieve this goal, in terms of affordability, self-sustainability, etc. We take these various hypotheses and tests them, in trials or in simulations or both, we analyze the results and select the best systems, and finally we apply them in our policies. But it doesn't end there, now we begin evaluating those very policies and systems over time, measuring their effectiveness and ability to achieve the aims for which they have been designed, making iterative adjustments or total rehauls depending on the data analyses.
 
-This process is itself simply the scientific method and is a long proven method for iteratively improving systems over time.
+This process is itself simply the scientific method and is a long proven means for iteratively optimizing systems.
 
-Finally, in order to improve our moral, political, and societal structures from one generation to the next, we cannot tie ourselves to any particular political ideology such as conservatism, social liberalism, environmentalism, or any such -ism, but actively choose to guide ourselves by the scientific process and a simple moral code.
+Finally, in order to improve our moral, political, and societal structures from one generation to the next, we cannot tie ourselves to any particular political ideology such as conservatism, social liberalism, environmentalism, or any such -ism, but actively choose to guide ourselves by the scientific process and our simple moral code.
 
 #### The Summary of the Party Principles
 
 The Open Party is built on these three pillars, a simple moral code, and a time tested iterative process.
 
-Fundamentally we are a party driven by this scientific process and dedicated to openness of mind and a moral code
-that optimizes for human well-being.
+Fundamentally we are a party driven by this scientific process and dedicated to openness of mind and a moral code that optimizes for human well-being.
 
-If you find yourself in agreement with this sentiment - or in staunch disagreement with the principles we've outlined - we'd like to hear from you, because
+If you find yourself in agreement with this sentiment - or in staunch disagreement with the principles we've outlined - we'd like to hear from you, because only together can we shape a better future for humanity.
